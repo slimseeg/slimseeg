@@ -6,7 +6,7 @@
 ## 🚀 About Me  
 **Boring Stuff**: I'm a dynamic **Head of Operations & Customer Success Manager** for a medical technology startup with a passion for leveraging **data analytics, AI, and machine learning** to drive strategic business decisions. With a background in **customer success, compliance consulting, and entrepreneurship**, I thrive in fast-paced environments where innovation and efficiency are key.
 
-**Fun Stuff**: I'm a perpetually postitive **people person**. My cup is always half full and every failure is one step closer to success if you are willing to learn from your mistakes!
+**Fun Stuff**: I'm a perpetually postitive **people person**. My cup is always half full and every failure is one step closer to success if you are willing to learn from your mistakes! (Psst, data comes in really handy here 🤫)
 
 As a **tech enthusiast**, I love solving complex problems using data-driven insights and continuously expanding my skill set. I'm also a **patent holder** 🏆, startup co-founder, and mentor, dedicated to building a love of and profeciency for data (or is that data?🤭).  
 
