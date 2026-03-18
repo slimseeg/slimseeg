@@ -2,6 +2,7 @@
 
 🚀 **Head of Operations | Customer Success Manager | Data Enthusiast | Goofball Extraordinaire**  
 🔗 [LinkedIn Profile](https://www.linkedin.com/in/tanya-seegmiller-6031939a/)
+
 🔗 [GIthub Project Repository]([https://www.linkedin.com/in/tanya-seegmiller-6031939a/](https://github.com/slimseeg/Projects-Folder)
 
 ## 🚀 About Me  
