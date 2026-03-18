@@ -2,6 +2,7 @@
 
 🚀 **Head of Operations | Customer Success Manager | Data Enthusiast | Goofball Extraordinaire**  
 🔗 [LinkedIn Profile](https://www.linkedin.com/in/tanya-seegmiller-6031939a/)
+🔗 [GIthub Project Repository]([https://www.linkedin.com/in/tanya-seegmiller-6031939a/](https://github.com/slimseeg/Projects-Folder)
 
 ## 🚀 About Me  
 **Boring Stuff**: I'm a dynamic **Head of Operations & Customer Success Manager** for a medical technology startup with a passion for leveraging **data analytics, AI, and machine learning** to drive strategic business decisions. With a background in **customer success, compliance & entrepreneurship**, I thrive in fast-paced environments where innovation and efficiency are key.
